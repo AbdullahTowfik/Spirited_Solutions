@@ -5,7 +5,7 @@ We only use natural and organic ingredients to maximize results.
 
 # Here are a list of our wonderful products:
 
-## MistSpray
+## Mist Spray
 - Rose Water
 - Essential Oils
 - Hydrolized Protein
